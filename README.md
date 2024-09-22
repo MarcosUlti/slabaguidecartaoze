@@ -1,0 +1,2 @@
+# slabaguidecartaoze
+mó parada escrota
